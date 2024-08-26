@@ -1,0 +1,4 @@
+- 👋 Oi, Eu Sou @LucasHenriqueCarvalhoRibeiro
+- 👀 Eu To interessado em vhs
+- 🌱 Eu to estudando alura  ...
+- 😄 gênero ele/dele
